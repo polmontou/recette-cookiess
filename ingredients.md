@@ -1,8 +1,0 @@
-- 85g beurre mou
-- 1 oeuf
-- 85g sucre
-- 1 sachet sucre vanillé
-- 150g farine
-- 100g chocolat noir
-- 1 càc sel
-- 1 càc levre chimique
